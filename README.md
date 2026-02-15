@@ -1,0 +1,1 @@
+# KsMal-diploma
